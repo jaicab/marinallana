@@ -18,8 +18,7 @@ Enlaces
 - Música (actividades e instrumentos del mundo)
 
 ## Viajes
-¿Buscas ideas para hacer en tu clase o con niños? Aquí he recogido mis actividades favoritas. Además, puedes descargarte todos los recursos en mi página de Teachers Pay Teachers o visitar mi Instagram para ver las actividades ¡en acción!
-- Primaria (lengua y matemáticas)
-- English
-- Science
-- Música (actividades e instrumentos del mundo)
+Viajar es una parte imprescindible en mi vida. Me encanta recorrer nuevos lugares, descubrir ciudades, personas, culturas y modos de vida que me ayuden a entender mejor el mundo en el que vivimos.
+Me gusta pensar que durante y después de cada viaje hay un crecimiento como persona, un aprendizaje, y que echar de menos donde vives y a los que quieres te hace volver a casa con más ganas. 
+
+>“Viajar es marcharse de casa, es dejar los amigos, es intentar volar, volar conociendo otras ramas, recorriendo caminos, es intentar cambiar.” - **G.G.M.**
